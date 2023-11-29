@@ -1,0 +1,1 @@
+# C-Users-ekaterina.soboleva-Desktop-Itogi-venv
